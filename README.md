@@ -1,0 +1,2 @@
+# 4theereckless
+Economic freedom
